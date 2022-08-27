@@ -1,0 +1,1 @@
+# wjdgks300.github.io
